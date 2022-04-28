@@ -2,4 +2,4 @@
 
 I may keep on updating till finishing.
 
-章鱼还在凡凡那里做客。
+下雨天，最近撰写论文，更新慢。
