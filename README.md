@@ -2,4 +2,4 @@
 
 I may keep on updating till finishing.
 
-下雨天，最近撰写论文，更新慢。
+最近撰写专利，还有忙大创结项，更新慢。
